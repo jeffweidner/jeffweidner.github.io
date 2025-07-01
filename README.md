@@ -1,1 +1,0 @@
-# jeffweidner.github.io
